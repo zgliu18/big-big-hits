@@ -13,9 +13,9 @@ Hey Jude |Beatles|||
 Honey ||||
 Hush ||Joe South|| 
 Lady Willpower ||||
-Look to your Soul ||||
+Look to your Soul |Johnny Rivers|||
 Paper Cup ||||
 Slick ||||
 Stone Soul Picnic |||| 
-Turn Around, Look at Me ||Five O'Clock World||
+Turn Around, Look at Me ||||
 Windy  |||| <https://www.youtube.com/watch?v=1xfJpPNg2SM>
