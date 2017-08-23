@@ -13,7 +13,7 @@ Hey Jude |Beatles|||
 Honey ||||
 Hush ||Joe South|| 
 Lady Willpower ||||
-Look to your Soul ||||
+Look to your Soul |Johnny Rivers|||
 Paper Cup ||||
 Slick ||||
 Stone Soul Picnic |||| 
